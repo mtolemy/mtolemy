@@ -1,5 +1,8 @@
-## Hi there 👋
+hi if i have this github linked don't bother me unless ur jack, winnie, or ivory thanks
 
+likely low energy, flaring or something else
+
+if u dm me to promo i WILL block you immediately, im not helping with with your party.
 <!--
 **mtolemy/mtolemy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
