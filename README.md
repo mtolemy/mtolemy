@@ -1,10 +1,11 @@
-hi if i have this github linked don't bother me unless ur jack, winnie, or ivory thanks
 
-likely low energy, flaring or something else
+<p align="center"> if this github is linked i ask u do not interact unless you are a close friend</p>
 
-if u dm me to promo i WILL block you immediately, im not helping with with your party.
+<p align="center"> you can interact if you are: jack, winnie, ivory, ikol, and anyone else i speak to regularly </p>
 
-#1 ptolemy fan ever also #1 regect fan... 
+<p align="center"> leave a message <a href="https://70smusic.atabook.org"> here </a> if u need to contact me </p>
+
+<p align="center"> im likely to be in a: flare, bad mood, or generally unpleasant to deal with </p>
 <!--
 **mtolemy/mtolemy** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
