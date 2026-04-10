@@ -1,7 +1,7 @@
 
 <p align="center"> if this github is linked i ask u do not interact unless you are a close friend</p>
 
-<p align="center"> you can interact if you are: jack, winnie, ivory, ikol, and anyone else i speak to regularly </p>
+<p align="center"> you can interact if you are: jack, winnie, ivory, and anyone else i speak to regularly </p>
 
 <p align="center"> leave a message <a href="https://70smusic.atabook.org"> here </a> if u need to contact me </p>
 
