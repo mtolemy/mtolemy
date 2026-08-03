@@ -4,4 +4,10 @@
   
 <p align="center"> ˚　　　any　　་།࣭ ࣭ ͜　　　prns　　　( ´ ω ` )</p>
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀->⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[🇮​​🇳​​🇫​​🇴​](https://fluffle.cc/msak__)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<-
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀->⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[🇮​​🇳​​🇫​​🇴​](https://fluffle.cc/msak__)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀<-
+
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=ab2a3u6b8cjitzbay6obl1hzp&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false">
+  </a>
+</p>
